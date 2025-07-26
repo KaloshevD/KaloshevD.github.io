@@ -121,4 +121,4 @@ People feel free to use this code for similar projects in your region. Wildfire 
 ---
 
 > Built with dedication for the opportunity of safer communities.  
-> **Stay safe out there!**
+> **Бркај работа :^) **
